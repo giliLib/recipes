@@ -1,6 +1,5 @@
 Quick Vegan Tacos🌮:
 ==================
-
 Ingredients:
 - 4 can of black beans, drained and rinsed
 - 1 cup of corn kernels (fresh or frozen)
